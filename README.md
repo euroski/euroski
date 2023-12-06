@@ -1,4 +1,4 @@
-### Salam dari binjai 👋
+### Hello, welcome to my profile 👋
 
 ![Apabila](/download.jpg)
 
